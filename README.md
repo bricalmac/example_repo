@@ -6,3 +6,5 @@ It is spooky season .:. .:.
 I'm ready for Halloween ^_^
 
 Black cats and jack-o-lanterns are my favourite :)
+
+This is the comparison edit
